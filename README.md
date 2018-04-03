@@ -1,0 +1,2 @@
+# ayurvedaprivacy
+Privacy policy
